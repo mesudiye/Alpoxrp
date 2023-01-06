@@ -1,0 +1,1 @@
+Bu bot Arda Yıldırım (Frydeex) tarafından yapılmıştır.
